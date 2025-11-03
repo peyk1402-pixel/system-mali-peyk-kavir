@@ -1,1 +1,0 @@
-# system-mali-peyk-kavir
